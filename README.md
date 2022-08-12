@@ -1,1 +1,1 @@
-k0rok0ro
+i dont know something
